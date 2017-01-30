@@ -8,6 +8,5 @@ Now you feel that you're a part of something big, the whole world!
 And someone has said hello to the whole world (which you are a part from, remember??)
 So... They have said hello to you too!
 you're not alone any more!
-
 So that, and a lot more, is what this project is about.
 Connect, bring peace and harmony to this beautiful planet!
